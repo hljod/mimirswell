@@ -13,3 +13,4 @@ PAGES: VI. READ IN ORDER. THE SPINE BINDS WHAT IT BINDS.
 COLOPHON
 
 leaf ix set true.
+leaf x set true.
