@@ -15,3 +15,4 @@ COLOPHON
 leaf ix set true.
 leaf x set true.
 leaf xi set true.
+leaf xii set true.
