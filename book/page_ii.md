@@ -1,0 +1,12 @@
+# PAGE II
+
+> ᚦᛁᚢ ᛃᚨ ᚹᚺᚺᛈ ᛒᚨᛇᛈᚠ ᛖᚺᛃᛗᚷ
+
+*the counting*
+
+THE PRINTER LEFT ADDRESSES.
+LEAF BY LEAF, WORD BY WORD, THE BOOK REMEMBERS ITS BINDING.
+
+3:1  3:2  3:4  4:1  4:2  4:4  5:1  5:2  7:1  7:2  9:7  10:1  10:3  10:4
+
+— THE LIBRARIAN
