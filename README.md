@@ -1,0 +1,13 @@
+# LIBER MIMIRSWELL
+
+> ᚱᛗᛖᚹ ᛃᚨ ᛞᛈᛗᛖᚢᛗᚷ
+
+being a book in six pages, set down by the well.
+
+PAGES: VI. READ IN ORDER. THE SPINE BINDS WHAT IT BINDS.
+
+— THE LIBRARIAN
+
+---
+
+COLOPHON
